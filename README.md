@@ -13,3 +13,5 @@ Welcome, fellow gamers and enthusiasts! If you’ve been eagerly awaiting new an
 👉 *The developers focused on creating a game that stands out in a crowded market. By combining cutting-edge technology with innovative gameplay mechanics, they aimed to deliver a gaming experience that is both fresh and immersive*
 
 🔥🔥🔥 ***This comprehensive guide will provide everything you need to know about the Date of Publication Game Dopple*** 👇🏻👇🏻👇🏻
+
+[<img src="https://github.com/BiancaMurez/date-of-publication-game-dopple/blob/main/go.png"/>](https://bit.ly/4eB2kbf)
